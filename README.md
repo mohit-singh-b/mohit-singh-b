@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **AI-ML , DSA**
 
-- 📫 How to reach me **mohit.pdft@gmail.com**
+- 📫 How to reach me **mohit.singh.bh6@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
